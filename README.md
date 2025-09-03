@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @USRnum as Thoriq
-- 👀 I’m interested in Android Dev, Game Dev and CyberSecurity
-- 🌱 I’m currently learning CyberSecurity Data Protection
-- 😄 Pronouns: Ja/Wir
-- ⚡ Fun fact: Cewe gwe Kokkoro🥰
+- Gk usah tanya
